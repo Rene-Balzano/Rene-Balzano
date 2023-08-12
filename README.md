@@ -1,4 +1,4 @@
-###🛠️ Ex-KFZ-Mechatroniker | 💼 Unternehmer | 🏠 Immobilien & Medien
+🛠️ Ex-KFZ-Mechatroniker | 💼 Unternehmer | 🏠 Immobilien & Medien
 
 👋 Moin! Ich bin Rene. Schön, dass du vorbeischaust.
 
