@@ -1,5 +1,7 @@
 🛠️ Ex-KFZ-Mechatroniker | 💼 Unternehmer | 🏠 Immobilien & Medien
 
+
+
 👋 Moin! Ich bin Rene. Schön, dass du vorbeischaust.
 
 🔧 **Mein Werdegang:**
@@ -23,4 +25,4 @@
 
 Bereit, Dinge anzupacken und Geschichten zu erzählen? Lass uns loslegen! 🚗🏡🚀
 
-[![Codewars Badge](https://www.codewars.com/users/Rene-Balzano/badges/small)](https://www.codewars.com/users/Rene-Balzano)
+
