@@ -23,6 +23,6 @@
 🌐 **Entdecke meine Welten:**
 - Lerne mehr über meine Reise auf https://www.xing.com/profile/Rene_Balzano/cv . Vom Schrauben an Autos bis zum Beraten von Menschen – alles in einem.
 
-Bereit, Dinge anzupacken und Geschichten zu erzählen? Lass uns loslegen! 🚗🏡🚀
+  Bereit, Dinge anzupacken und Geschichten zu erzählen? Lass uns loslegen! 🚗🏡🚀
 
 
